@@ -7,8 +7,8 @@ Kelompok Keren
 
 Ketua Kelompok:
 
-Anggota 1: Tsabitah Inayah
+Anggota 1:
 
-Anggota 2: Bulan Aprilia Putri Murela
+Anggota 2:
 
-Anggota 3: Sakti Cahya Buana
+Anggota 3:
